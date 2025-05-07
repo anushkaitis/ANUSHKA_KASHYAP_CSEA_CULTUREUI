@@ -5,3 +5,6 @@ https://www.figma.com/design/RWzKA182v56F2sNLD5mG9j/Untitled?node-id=295-152&t=p
 
 
 https://drive.google.com/file/d/1ML5nEogqMZSX5NJnaeBXeYIfjrAoIwdo/view?usp=drive_link
+
+https://docs.google.com/presentation/d/1-etnUEZHqTafVubhbC8SF2e6Gamyt8Ed/edit?usp=drive_link&ouid=106214752849868258296&rtpof=true&sd=true
+
